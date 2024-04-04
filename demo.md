@@ -4,3 +4,6 @@
 
 ![image](https://github.com/Chrisdeparis/JSON/assets/9371437/ca27910b-5f48-4c03-9402-8d541ed472b5)
 
+![image](https://github.com/Chrisdeparis/JSON/assets/9371437/92d9c627-8095-418a-81f0-bce13edf915c)
+
+
